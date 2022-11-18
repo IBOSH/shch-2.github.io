@@ -1,1 +1,0 @@
-# shch-2.github.io
